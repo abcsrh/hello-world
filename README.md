@@ -1,6 +1,6 @@
 # hello-world
 just to learn!
 
-I love here which allows me to work on differnet stuff.
+I love where ppl allow me to work on differnet stuff.
 
 Tnx
